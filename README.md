@@ -2,4 +2,4 @@
 
 Ра́йан Ро́дни Ре́йнольдс (англ. Ryan Rodney Reynolds; род. 23 октября 1976, Ванкувер, Канада) — канадско-американский актёр и кинопродюсер. Наиболее известен по ролям в ситкоме «Два парня, девушка и пиццерия[en]», а также в фильмах «Король вечеринок», «Просто друзья», «Да, нет, наверное», «Предложение», «Ужас Амитивилля», «Большая жратва», «Люди Икс: Начало. Росомаха», «Погребённый заживо», «Блэйд: Троица», «Зелёный Фонарь», «Дэдпул», «Дэдпул 2», «Телохранитель киллера», «Главный герой». Обладатель премии «Молодой Голливуд» в 2003 году.
 
-https://upload.wikimedia.org/wikipedia/commons/thumb/1/14/Deadpool_2_Japan_Premiere_Red_Carpet_Ryan_Reynolds_%28cropped%29.jpg/800px-Deadpool_2_Japan_Premiere_Red_Carpet_Ryan_Reynolds_%28cropped%29.jpg
+**https://upload.wikimedia.org/wikipedia/commons/thumb/1/14/Deadpool_2_Japan_Premiere_Red_Carpet_Ryan_Reynolds_%28cropped%29.jpg/800px-Deadpool_2_Japan_Premiere_Red_Carpet_Ryan_Reynolds_%28cropped%29.jpg**
